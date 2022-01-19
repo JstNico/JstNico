@@ -1,2 +1,2 @@
 Hi, I’m @JstNico
-I'm looking for myself ;D
+and I'm looking for myself in this world ;D
